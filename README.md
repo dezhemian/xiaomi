@@ -1,2 +1,1 @@
-# [小米商城] (https://dezhemian.github.io/xiaomi/)
-
+# [小米商城](http://fenav.com/jianli)
