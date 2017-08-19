@@ -1,2 +1,2 @@
-# [resume](http://fenav.com/jianli)
+# [resume](https://dezhemian.github.io/xiaomi/)
 
